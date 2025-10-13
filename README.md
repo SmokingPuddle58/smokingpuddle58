@@ -1,10 +1,10 @@
 ### Hi there 👋
 
 
-Hi! This is SmokingPuddle58! A year-4 student @HKUST, with MATH-CS major and extended major in AI!
+Hi! This is SmokingPuddle58! A fresh grad @HKUST, with MATH(CS track) major and extended major in AI!
 
 Please visit my website fore more details
 
-https://smokingpuddle58.github.io
+https://smkpdl58.top
 
-You have everything about me there! OwO
+You have everything about me there! (I guess coz the new website is still under development) OwO
